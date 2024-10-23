@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on projects for resume and jobs
 - 📫 How to reach me shoaib.thecoder@gmail.com
 - 😄 Pronouns: shoby
-- ⚡ Fun fact: ... :nerd:
+- ⚡ Fun fact: ... :nerd: :smirk:
 
 
 <!---
